@@ -10,6 +10,6 @@
 - Mátra
 - Tátra
 - Alpok
-- Mount everst
+- Mount everest
 ## Vannak egyebek💾🎽
 - Példának okáért a Hold🌓
