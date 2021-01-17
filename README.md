@@ -6,7 +6,7 @@
 - Fertő tó
 - Balaton
 - Az összes óceán
-## Vannek hegyek🚵‍♀🚵🏻‍♂
+## Vannak hegyek🚵‍♀🚵🏻‍♂
 - Mátra
 - Tátra
 - Alpok
